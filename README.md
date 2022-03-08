@@ -1,4 +1,4 @@
-# Detour- Khoi. Ft Two
+# Detour - Khoi. Ft Two
 I heard it from a song
 Where you’re going,
 a day never dies
